@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Irikou
 - 👀 I’m interested in Gacha
 - 🌱 I’m currently learning the Drawing and Editing
-- 💞️ I’m looking to collaborate on loni
+- 💞️ I’m looking to collaborate with loni in Gacha
 - 📫 How to reach me in instagram
 
 <!---
